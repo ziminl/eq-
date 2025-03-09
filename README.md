@@ -6,3 +6,5 @@ https://www.pps.co.za/sites/default/files/2023-09/Low%20Equity%20Portfolio%20202
 
 
 cant do anything with btc.
+
+how eq relates to income. 
