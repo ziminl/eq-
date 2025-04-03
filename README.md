@@ -10,6 +10,6 @@ cant do anything with btc.
 how eq relates to income. 
 
 
-#another theory - open interest based market analysis
+# another theory - open interest based market analysis
 
 search open interest equity formula
