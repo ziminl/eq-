@@ -13,6 +13,3 @@ how eq relates to income.
 #another theory - open interest based market analysis
 
 search open interest equity formula
-
-
-![Uploading image.png…]()
