@@ -8,3 +8,11 @@ https://www.pps.co.za/sites/default/files/2023-09/Low%20Equity%20Portfolio%20202
 cant do anything with btc.
 
 how eq relates to income. 
+
+
+#another theory - open interest based market analysis
+
+search open interest equity formula
+
+
+![Uploading image.png…]()
